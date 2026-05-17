@@ -1,4 +1,4 @@
-# 
+# ultimate nft sniper bot addons is the best nft sniper bot addons with profit-calculator and flip-strategies. Safe, reliable, and optimized for NFT sniper, trading, and arbitrage
 
 
 
